@@ -3,3 +3,6 @@ Scripts that I uploaded onto Pastebin a while ago since I didn't know Github exi
 
 # LICENSE
 YOU ARE NOT ALLOWED TO REUPLOAD THE SCRIPTS OR EVEN PUBLISH AN EDITED VERSION OF MY SCRIPTS. I COULD SEW YOU.
+
+# My Pastebin Profile
+https://pastebin.com/u/DrevilYT
